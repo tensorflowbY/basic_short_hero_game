@@ -56,7 +56,7 @@ Oyun içerisinde bulduğunuz paralarla dükkanlardan iksir satın alarak sağlı
 
 ## İletişim
 
-Herhangi bir istek veya sorun için @batuhanyilmaz583461@gmail.com
+Herhangi bir istek veya sorun için @batuhanyilmaz345861@gmail.com
 
 ## Lisans
 
